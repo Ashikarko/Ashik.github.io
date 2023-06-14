@@ -1,1 +1,0 @@
-# Ashikarko.github.io
